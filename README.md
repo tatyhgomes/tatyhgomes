@@ -4,10 +4,10 @@
 ###Soft Skills
 
 Facilidade de comunicação 
-Habilidade de trabalhar em equipe, como saber ouvir a opmião de dos colegas e superiores
-Sou paciente, calma 
-Pró-ativa
-Sempre buscando conhecimento, para evoluir profissionalmete e passar conhecimento para os colegas
+Habilidade de trabalhar em equipe, como saber ouvir a opinião de dos colegas e superiores;
+Sou paciente, calma;
+Pró-ativa;
+Sempre buscando conhecimento, para evoluir profissionalmete e dividir conhecimento para os colegas;
 
 
 
